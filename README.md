@@ -9,8 +9,6 @@
 
 - 💬 Ask me about **Anything**
 
-- ⚡ Fun fact **fun**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
